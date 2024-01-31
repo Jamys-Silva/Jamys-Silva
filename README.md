@@ -1,5 +1,5 @@
 # 💫 About Me:
-Sou iniciante no desenvolvimento<br>Conta apenas treino e aprendizagem
+Futuro Dev<br>Inicio 2024!!! 
 
 
 ## 🌐 Socials:
